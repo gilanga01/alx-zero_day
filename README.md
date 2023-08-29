@@ -1,1 +1,1 @@
-ALX training is coll
+ALX training is cool
